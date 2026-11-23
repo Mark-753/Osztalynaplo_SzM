@@ -1,0 +1,1 @@
+# Osztalynaplo_SzM
